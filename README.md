@@ -1,4 +1,4 @@
-### Hi there 👋
+### I'm noob 😒
 
 <!--
 **carrot0322/carrot0322** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
